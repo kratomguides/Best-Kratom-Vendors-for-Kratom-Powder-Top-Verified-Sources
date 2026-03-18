@@ -4,9 +4,9 @@ Kratom powder is the foundation of the entire kratom market. It is the most purc
 
 ---
 
-[Buy Premium Kratom Powder from Jack Botanicals](https://reviewscode.com/jb-shop)
+### [Buy Premium Kratom Powder from Jack Botanicals](https://reviewscode.com/jb-shop)
 
-**AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"**
+### **AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"**
 
 ---
 
